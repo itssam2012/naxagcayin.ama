@@ -1,0 +1,2 @@
+# naxagcayin.ama
+naxagcayin ashx
